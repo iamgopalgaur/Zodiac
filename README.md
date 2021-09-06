@@ -6,7 +6,7 @@ User Profile
 
 Transaction History
 
-![alt_text](https://play-lh.googleusercontent.com/J2zbJIdznN2TAIDxwB_x9MYpen4b-YrQWOP8IWu2tIYItUBD90KzOWGgB0cb2xkze3BC=w720-h310-rw)
+![alt_text](https://play-lh.googleusercontent.com/J2zbJIdznN2TAIDxwB_x9MYpen4b-YrQWOP8IWu2tIYItUBD90KzOWGgB0cb2xkze3BC=w720-h310-rw)    ![alt_text](https://play-lh.googleusercontent.com/CQXIYp9LsXO4SQIwGX4smZ-S0hguD_M1iwo6DeXtFShasqJVP1AuNUBWwX2URT_2Cg=w720-h310-rw)
 
 Other Pages
 
